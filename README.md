@@ -1,0 +1,1 @@
+# feladat_megoldas_12_15
